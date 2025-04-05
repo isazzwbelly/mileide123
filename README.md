@@ -1,4 +1,4 @@
-# mileide123
+# Minha apresentação :)
 Oii ! me chamo Isabelly Vieira, tenho 16 anos e no dia 06/08 completo finalmente 17 anos. Atualmente estou me matando de trabalhar e estudar :( Mas graças ao meu esforço estou conquistando minhas coisas e estou me virando sozinha.
 Confesso que ter sonhos é complicado, por exemplo eu tenho o desejo de passar na área da Medicina e sinceramente não é uma parte muito fácil... Eu adoro trabalhar com a prática da saúde tanto que tenho curso de farmácia e trabalho com partes da saúde.
 Eu mesma queria ser empresária mas Deus não me deu esse dom, sou preguiçosa :P Admiro quem trabalha  pra si mesmo e não obedece nínguem, mas eu me acostumo muito no que facilita então eu faço o mínimo até para sobreviver....
