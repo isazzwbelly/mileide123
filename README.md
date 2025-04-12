@@ -5,3 +5,6 @@ Eu mesma queria ser empresária mas Deus não me deu esse dom, sou preguiçosa :
 Acho que já fiz muito com 16 anos e olha que a minha vida nem começou, me dá preguiça até de fazer planos quem dirá de seguir eles. Bjjs prof <3
 
 [USD, é os USD](https://youtu.be/vqcIzU_OLW4?si=pdNEOpHVHtZ38U7I)
+_amo estudar_
+**é mentira**
+![gif da risada](https://media1.tenor.com/m/gotOLnyvy4YAAAAC/bubu-dancing-dance.gif)
